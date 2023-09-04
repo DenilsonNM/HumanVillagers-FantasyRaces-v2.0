@@ -1,5 +1,3 @@
-Thanks for downloading this pack :D
-
 some recommendations:
 
 You have permissions to:
